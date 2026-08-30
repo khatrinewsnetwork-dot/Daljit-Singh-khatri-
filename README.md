@@ -1,1 +1,0 @@
-# Daljit-Singh-khatri-
